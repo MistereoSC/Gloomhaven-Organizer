@@ -6,9 +6,8 @@ The Insert fits inside the base box and accommodates everything from the base ga
 The Floor Tiles have to be stored separately, but I highly recommend an Accordion Binder to sort and store them separately!
 
 The Insert is meant to be built with 5mm Foamcore (I think it took about 3 and a half A4 sheets).
-
-![Boxed View](https://imgur.com/Fk5VlqY)
-![Boxless View](https://imgur.com/8WbgwlT)
-![Detailed View](https://imgur.com/bui5DdH)
-
 A second Insert for the Jaws of the Lion and Forgotten Circles Expansions is in the works!
+
+![Boxed View](https://i.imgur.com/Fk5VlqY.png)
+![Boxless View](https://i.imgur.com/8WbgwlT.png)
+![Detailed View](https://i.imgur.com/bui5DdH.png)
